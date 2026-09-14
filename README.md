@@ -5,3 +5,5 @@ Det fantes en katt og 3 hunder, det fantes også 7 mennesker. det var 5 hunder o
 Noe sjedde en kveld med alle disse "folka"
 
 boiiii I aint never gonna touch that sock again
+
+This is C klassen
