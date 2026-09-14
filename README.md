@@ -7,3 +7,5 @@ Noe sjedde en kveld med alle disse "folka"
 boiiii I aint never gonna touch that sock again
 
 This is C klassen
+
+gurrlllll
